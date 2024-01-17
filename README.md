@@ -1,1 +1,1 @@
-# Yo-Gi-Oh Joken-Po
+# Yo-Gi-Oh Joken-Pô
